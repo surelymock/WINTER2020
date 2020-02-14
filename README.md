@@ -14,3 +14,14 @@ Jesse (12:30pm)
 Ami (12:30pm)  
 Eli (3:30pm)  
 Lael (12:30pm)  
+
+
+
+#### Aggression Lines 
+
+Isabela Devia (3:30pm) 
+Shirley Mach (3:30pm)
+Rachel Rusch (3:30pm)
+Edward Shiang (3:30pm)
+Sarah Truax (3:30pm)  
+Roger Yuan (12:30pm) 
